@@ -35,7 +35,7 @@
 
 点击访问：<a href="https://aw5-21.pages.dev/">暗区禁网免费正版影视网站</a>
 
-点击访问：<a href="https://chiguaqunzhongde.pages.dev/">黑料吃瓜网</a>
+点击访问：<a href="https://hl446.pages.dev/">今日吃瓜黑料</a>
 
 点击访问：<a href="https://hl415.pages.dev/">黑料社今日黑料首页</a>
 
